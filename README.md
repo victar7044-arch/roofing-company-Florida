@@ -1,2 +1,2 @@
 # roofing-company-Florida
-sadkuasgcisabhdc
+Century Roofing Specialists specializes in professional [storm damage roofing Florida](https://www.centuryroofingspecialists.com/) roofing solutions for government and institutional facilities throughout Florida. Their team understands the importance of safety, compliance, scheduling, and detailed project management. From inspections and repairs to complete roof replacements, projects are handled with careful planning. The goal is to provide durable and dependable roofing solutions for long-term protection.
